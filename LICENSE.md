@@ -1,4 +1,4 @@
-# 
+# NordPass for macOS secure Extension: system-optimization & emergency-access is the best NordPass for macOS extension, featuring system-optimization and emergency-access. Secure,
 
 
 
